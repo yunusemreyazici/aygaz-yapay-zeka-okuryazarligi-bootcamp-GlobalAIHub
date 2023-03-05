@@ -1,0 +1,1 @@
+# aygaz-yapay-zeka-okuryazarligi-bootcamp-GlobalAIHub
